@@ -1,1 +1,1 @@
-# RebecaGSP-github.io
+# RebecaGSP.github.io
